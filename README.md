@@ -1,4 +1,5 @@
-# XDREW V1<img width="585"
+# XDREW V1 Design By Faqih muhamad
+
 <img width="585" height="1266" alt="IMG_1954" src="https://github.com/user-attachments/assets/fecdbeee-e0fd-41a3-9036-666266d2e58b" />
 
 
